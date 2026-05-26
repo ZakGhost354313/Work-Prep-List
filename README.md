@@ -23,6 +23,21 @@
 
 ## Open
 
+* Plates
+
+  * Monkey bowls
+* Utensils
+
+  * grey handled scoop
+  * white handled scoop
+  * tongs (4 pair)
+
+    * two for nick
+    * two for fry
+* Bowls
+
+  * at least 2-3 big bowls
+
 #### Reach-In Freezer
 
 * Fries
@@ -37,19 +52,23 @@
 
 
 
-#### Salad Station(above Freezer) 3rd Pans
+#### Salad Station(above Freezer)
 
-* Crap Dip
+* 1/3 pan Crap Dip
 
   * grey handle scoop
-* Salad Mise
+* 1/3 pan Salad Mise
 
-  * Cherry Tomatoes
-  * Cut Cucumbers
-  * Shredded Carrots
-* Onion Dip
+  * 1/9th Cherry Tomatoes
+  * 1/9th Cut Cucumbers
+  * 1/9th Shredded Carrots
+  * Croutons(in gallon bag near station)
+* 1/3 pan Onion Dip
 
   * white handle scoop
+* Monkey Bowls for Onion Dip
+* Blue small Salad plates
+* White app. Plates
 
 
 
