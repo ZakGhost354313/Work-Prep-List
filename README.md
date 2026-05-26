@@ -111,8 +111,7 @@
     * 1/4s or 1/6s
   * Blood Oranges
 
-    * forgot the term
-    * 
+    * supreme
 * Caesar Croutons
 * check Citrus Berry Candied Nuts
 * 
@@ -121,7 +120,37 @@
 
 ### Open
 
+* In One Hotel Pan:
 
+  * 1/3 Pan of clean cut Romaine
+  * Caesar
+
+    * Quart Container of Caesar Dressing
+    * Croutons in Cambro outside of Hotel Pan
+    * Pepper to crack
+    * Pint Container of Pecorino Romano
+  * Citrus Berry
+
+    * Quart of cut Strawberries
+    * Pint of Blood Orange Supremes
+    * Pint of Feta
+    * Quart of Candied Nuts
+    * Squeeze Bottle of Poppy Vin.
+  * Squeeze Bottle of Coulis
+  * Pizza Crusts for Crap Dip(near or in Hotel Pan)
+* Oven set to 450F 60Min Convection Bake
+
+  * take out the metal pan
+  * leave either the straight rack(Mylz's Favorite) or wire rack(Cat's Favorite)
+  * have a foil sheet for toasting the pizza crusts on
+* Hot water in one of the small bain-maries
+
+  * with dry towel
+* Utensils
+
+  * two pie servers
+  * one slicing knife
+  * Cat's Bread knife
 
 
 
