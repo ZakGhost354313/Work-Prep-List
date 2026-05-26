@@ -76,7 +76,52 @@
 
 # Cold Side(Dessert Station)
 
-### Lorem Ipsum
+### Prep
+
+* Dressings
+
+  * Caesar (unsure of recipe ask Nick)
+
+    * Mayo
+    * red wine vinegar
+    * lemon juice
+    * pecorino romano
+    * 
+  * Poppyseed Vinaigrette
+
+    * 1 Cup Mayo
+    * 1/2 Cup Rice Wine Vinegar
+    * 1 teaspoon Ground Mustard
+    * 1/2 cup Olive Oil
+    * 1/2 cup Sugar
+    * after mix, mix in Poppyseeds
+* Cut Romaine
+
+  * My Method, though any method works:
+
+    * Cut off butts
+    * cut into \~1in slices
+    * break apart slices into bottom half of spinner
+    * wash, drain x2
+    * spin to dry, dump excess water x2
+* Cut Fruit for Desserts/Citrus Berry Salad
+
+  * Strawberries
+
+    * 1/4s or 1/6s
+  * Blood Oranges
+
+    * forgot the term
+    * 
+* Caesar Croutons
+* check Citrus Berry Candied Nuts
+* 
+
+### 
+
+### Open
+
+
 
 
 
