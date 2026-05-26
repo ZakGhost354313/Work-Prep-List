@@ -23,9 +23,6 @@
 
 ## Open
 
-* Plates
-
-  * Monkey bowls
 * Utensils
 
   * grey handled scoop
