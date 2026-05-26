@@ -15,8 +15,9 @@
 
     * Sour Cream Cheese
     * dice Celery, Red Bell Pepper, Red Onion
-    * sauté diced veg^
-    * 
+    * sauté diced veg^ (Old Bay Seasoning)
+    * Old Bay Seasoning
+* 
 
 
 
@@ -75,5 +76,7 @@
 
 # Cold Side(Dessert Station)
 
-### test
+### Lorem Ipsum
+
+
 
