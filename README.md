@@ -1,4 +1,4 @@
-5/26/2026
+6/5/2026
 
 # Fry Side
 
@@ -17,15 +17,18 @@
     * dice Celery, Red Bell Pepper, Red Onion
     * sauté diced veg^ (Old Bay Seasoning)
     * Old Bay Seasoning
+  * Pickle
 
 
 
 ## Open
 
+* Fryers on at 4:00 set to 350℉
+* Ice hotel pan(s) also around 4:00
 * Utensils
 
-  * grey handled scoop
-  * white handled scoop
+  * grey handled scoop(for crab)
+  * white handled scoop(for onion)
   * tongs (4 pair)
 
     * two for nick
@@ -45,6 +48,7 @@
 * Kids Mac
 * Kids Strips
 * Fried Green Beans
+* Croissant Beignets
 
 #### Salad Station(above Freezer)
 
@@ -71,15 +75,17 @@
 * Salad Dressings
 
   * Ranch
-  * Blue Cheese
+  * Blue Cheese (unlabeled large bottle)
   * 1000(Thousand) Island
   * Italian
   * Honey Mustard
   * Balsamic Vinaigrette (labeled "Honey B.")
+  * Mayo (not a salad dressing, but in the same area. Also unlabeled smaller bottle\[might be labeled])
 * Spring Mix
+* Pimento Cheese Hushpuppy Batter
 * Wasabi Aioli (for Fried Green Beans)
 
-  * let Wasabi bloom for at least 24 hours
+  * let Wasabi bloom for **at least** 24 hours
   * Then add to mayo until desired "wasabi-ness"
 
     * might add horseradish if needed
@@ -164,6 +170,10 @@
 * Hot water in one of the small bain-maries
 
   * with dry towel
+* Cut Cakes/Pies
+
+  * most Cakes cut into 12
+  * most Pies cut into 6
 * Utensils
 
   * two pie servers
