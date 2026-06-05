@@ -53,16 +53,13 @@
 #### Salad Station(above Freezer)
 
 * 1/3 pan Crap Dip
-
   * grey handle scoop
 * 1/3 pan Salad Mise
-
   * 1/9th Cherry Tomatoes
   * 1/9th Cut Cucumbers
   * 1/9th Shredded Carrots
   * Croutons(in gallon bag near station)
 * 1/3 pan Onion Dip
-
   * white handle scoop
 * Monkey Bowls for Onion Dip
 * Blue small Salad plates
@@ -73,7 +70,6 @@
 #### Reach-In Refrigerator
 
 * Salad Dressings
-
   * Ranch
   * Blue Cheese (unlabeled large bottle)
   * 1000(Thousand) Island
@@ -84,10 +80,8 @@
 * Spring Mix
 * Pimento Cheese Hushpuppy Batter
 * Wasabi Aioli (for Fried Green Beans)
-
   * let Wasabi bloom for **at least** 24 hours
   * Then add to mayo until desired "wasabi-ness"
-
     * might add horseradish if needed
 
 
@@ -103,16 +97,13 @@
 ### Prep
 
 * Dressings
-
   * Caesar (unsure of recipe ask Nick)
-
     * Mayo
     * red wine vinegar
     * lemon juice
     * pecorino romano
     * 
   * Poppyseed Vinaigrette
-
     * 1 Cup Mayo
     * 1/2 Cup Rice Wine Vinegar
     * 1 teaspoon Ground Mustard
@@ -120,42 +111,35 @@
     * 1/2 cup Sugar
     * after mix, mix in Poppyseeds
 * Cut Romaine
-
   * My Method, though any method works:
-
     * Cut off butts
     * cut into \~1in slices
     * break apart slices into bottom half of spinner
     * wash, drain x2
     * spin to dry, dump excess water x2
 * Cut Fruit for Desserts/Citrus Berry Salad
-
   * Strawberries
-
     * 1/4s or 1/6s
   * Blood Oranges
-
     * supreme
 * Caesar Croutons
 * check Citrus Berry Candied Nuts
-* 
+
 
 
 
 ### Open
 
 * In One Hotel Pan:
-
   * 1/3 Pan of clean cut Romaine
   * Caesar
-
     * Quart Container of Caesar Dressing
     * Croutons in Cambro outside of Hotel Pan
     * Pepper to crack
     * Pint Container of Pecorino Romano
   * Citrus Berry
-
-    * Quart of cut Strawberries
+    * Blueberries
+    * Quart of cut strawberries
     * Pint of Blood Orange Supremes
     * Pint of Feta
     * Quart of Candied Nuts
@@ -163,19 +147,15 @@
   * Squeeze Bottle of Coulis
   * Pizza Crusts for Crap Dip(near or in Hotel Pan)
 * Oven set to 450F 60Min Convection Bake
-
   * take out the metal pan
   * leave either the straight rack(Mylz's Favorite) or wire rack(Cat's Favorite)
   * have a foil sheet for toasting the pizza crusts on
 * Hot water in one of the small bain-maries
-
   * with dry towel
 * Cut Cakes/Pies
-
   * most Cakes cut into 12
   * most Pies cut into 6
 * Utensils
-
   * two pie servers
   * one slicing knife
   * Cat's Bread knife
